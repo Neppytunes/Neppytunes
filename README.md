@@ -18,6 +18,9 @@ I'm not very talkative
 
 
 My BIGGEST kins are Tavros Nitram (HS), Eridan Ampora (HS), Randal Ivory (RF), Toki Wartooth (MTL), Idia Shroud (TWST), and Rimicha (FM)
-
+^^
 DOUBLES OKAY! Eridan doubles iwc, but I still encourage interacting!!
+
+
+I love you Iga, Mera, Lanie, Sunny, Kit, Snicket, Simon, Alex, Shortie and Jake <3
 

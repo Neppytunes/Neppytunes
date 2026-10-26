@@ -1,16 +1,17 @@
-## Hi there 👋
+<img width="268" height="252" alt="image" src="https://github.com/user-attachments/assets/0bd16500-f5dc-44ed-80fa-0c53e0892b43" />
 
-<!--
-**Neppytunes/Neppytunes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+## Hello!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My name is Neptune, but you may also call me whatever name off of my kinlist you prefer
+
+15yo
+Apagender/Aroace
+Any pronouns, primarily she/they
+
+My mood fluctuates a LOT, so iwc always
+
+C+H is ALWAYS allowed on PonyTown
+
+
+

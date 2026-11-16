@@ -16,7 +16,7 @@ My mood fluctuates a LOT, so iwc always
 
 C+H is ALWAYS allowed on PonyTown
 
-I'm not very talkative
+I'm not a very talkative person, so I'm hard to get close to. If that irks you, don't try to get close with me at all
 
 
 My BIGGEST kins are Tavros Nitram (HS), Eridan Ampora (HS), Randal Ivory (RF), Toki Wartooth (MTL), Idia Shroud (TWST), and Rimicha (FM)
